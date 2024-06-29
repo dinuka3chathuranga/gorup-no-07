@@ -2,4 +2,4 @@
 
 
 
-click to visite website:https://dinuka3chathuranga.github.io/profile-page-group-no-07/
+click to visite website:https://dinuka3chathuranga.github.io/gorup-no-07/
